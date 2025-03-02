@@ -1,4 +1,4 @@
-# 🚀 ChewTools - Elevate Your Solana Token
+# 🚀 ChewTools - Reward System For Solana Token - Elevate Your Solana Token
 
 Transform your Solana meme token into a powerful utility token with ChewTools' advanced reward system. Available now at [chewtools.fun](https://chewtools.fun)!
 
