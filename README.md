@@ -71,3 +71,8 @@ Join the growing number of tokens using ChewTools to:
 ---
 
 Ready to take your token to the next level? Visit [chewtools.fun](https://chewtools.fun) now!
+![image](https://github.com/user-attachments/assets/95adbd1f-a701-4fda-a821-73dc22d5b6ae)
+![image](https://github.com/user-attachments/assets/b6804793-c361-4a4c-b26d-9588a30df1c8)
+![image](https://github.com/user-attachments/assets/60dacc4c-962f-4cee-be99-041ee71b50d6)
+
+
